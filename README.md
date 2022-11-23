@@ -1,10 +1,5 @@
   ═════════════ஜ۩۞۩ஜ═════════════
-  •● W E L C O M E - T O - M Y - P R O F I L E ●•
   ═════════════ஜ۩۞۩ஜ═════════════
-
-
-
-
 - 👋 Hi, I’m @Josesitoelratoncito
 - 👀 I’m interested in software of google
 - 🌱 I’m currently learning programming
